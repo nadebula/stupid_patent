@@ -1,1 +1,1 @@
-# EFF's Stupid Patent of the Month - Chinese Translation
+# EFF's Stupid Patent of the Month (Discontinued)
